@@ -1,4 +1,4 @@
-### Hi
+### Hi, My name is Joshua im 19 and i live in France
 
 ![Profile views](https://gpvc.arturio.dev/JoshuaSL)  
 
